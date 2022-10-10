@@ -13,7 +13,7 @@ Wo du mich findest!
 Mein Server
 
 ➲ Java Edition
-» AstroGames.net
+» Suratix.net & AstroGames.net 
 
 ➲ TeamSpeak³
-» AstroGames.net
+» Suratix.net & AstroGames.net
